@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @0NEeyeGrimRe4per
+- 👀 I’m interested in helping people whit python problems
+- 🌱 I’m currently learning python
+- 💞️ I’m looking to collaborate on all kinds of requests (of course only about programing)
+- 📫 if you want to reach me send an email to this email address : mrpoop2312@gmail.com
